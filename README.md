@@ -1,6 +1,6 @@
 ## Hi there 👋
 - :raising_hand_man: I'm Davide, I was born in 1997 in Houston, USA
-- - 😄 Pronouns: He/Him
+- 😄 Pronouns: He/Him
 - :round_pushpin: based in Genova, Italy
 - :technologist: I'm currently working as a software developer
 - 🔭 I’m interested in anything can learn on my behalf
