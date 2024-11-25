@@ -5,5 +5,5 @@
 - 🌱 I’m currently learning the power of AI
 - 📫 How to reach me: davide.parisi1084@gmail.com
 - 😄 Pronouns: He/Him
-- :fire: Personal interests: mountain addict :mountain:, climbing enthusiast :climbing_man:, travel lover :earth_asia:
+- :fire: Personal interests: mountain addicted :mountain:, climbing enthusiast :climbing_man:, travel lover :earth_asia:
 
